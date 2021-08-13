@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ryanbrewerstrata
+- 📫 How to reach me: 816-863-0740 or rbrewer@stratadecision.com
